@@ -1,5 +1,1 @@
-
-![image](https://github.com/ramazanarslan/ramazanarslan/assets/31334024/4e8b356f-a042-46ac-96bd-7cf3c5542a8b)
-
-
-
+![image](https://github.com/ramazanarslan/ramazanarslan/assets/31334024/1b9e36af-e729-488d-aef3-65a91bcbc4ca)
